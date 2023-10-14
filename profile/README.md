@@ -1,3 +1,3 @@
 ## Free Minecraft Hosting
 
-Sign Up for BETE here https://minere.cloud
+Sign Up for BETA here https://minere.cloud
