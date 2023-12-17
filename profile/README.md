@@ -1,3 +1,2 @@
-## Free Minecraft Hosting
+## Minecraft Services
 
-Sign Up for BETA here https://minere.cloud
